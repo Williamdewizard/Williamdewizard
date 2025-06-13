@@ -2,7 +2,7 @@
 - 👀 I’m interested in networking and web development
 - 🌱 I’m currently learning web development and programming
 - 💞️ I’m looking to collaborate on computing
-- 📫 How to reach me +256750752702
+- 📫 How to reach me +256777967100
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
